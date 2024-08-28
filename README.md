@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on botany
 - 📫 How to reach me for Instagram 
 - 😄 Pronouns:  She/her
-- ⚡ Fun fact: I really like kpop, I also like The color Green,red and purple, i love listening to Music <3
+- ⚡ Fun fact: I like kpop,a group called Stray kids!! , I also like The color Green,red and purple, i love listening to Music <3
 
 <!---
 eloysarafaelly/eloysarafaelly is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
